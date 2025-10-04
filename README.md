@@ -10,7 +10,7 @@ Since 2021, I’ve been working in structural and CAD departments, helping desig
 I’m passionate about continuous learning—whether it’s applied mathematics, computing, or mechanics.  
 Expanding my skills in programming, software development, and data analysis has been key for me to bridge **engineering and technology**, creating tools that push both fields forward.  
 
-At the end of the day, engineering isn’t about a title—it’s about solving problems, creating knowledge, and advancing technology to make the world better. 🌍  
+At the end of the day, engineering isn’t about a title—it’s about solving problems, understanding and knowledge, and advancing technology to make the world better. 🌍  
 
 ---
 
